@@ -1,1 +1,1 @@
-Take what you and be generous :)
+Take what you can and be generous :)
